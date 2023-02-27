@@ -1,0 +1,2 @@
+# tekraredensayilar
+tekraredensayilar
